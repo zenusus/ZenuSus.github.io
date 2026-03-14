@@ -1,4 +1,4 @@
-# мой сайт, йоу <br>
-хайп
+# deprecated<br>
+new site: zenusus.serv00.net Da ✅
 
 
